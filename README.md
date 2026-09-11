@@ -2,7 +2,6 @@ Haiii!!!
 I am full-stack developer and I open to comissions & orders. 
 
 My contacts:
-https://t.me/loli_ass
 whyxxvix@gmail.com
 
 <!---
